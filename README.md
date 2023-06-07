@@ -1,4 +1,4 @@
 
-### تابع : [SYTHON](https://t.me/SAYTHONH) ###
+### تابع : [Tipthon](https://t.me/E9N99) ###
 
-![SYTHON](https://te.legra.ph/file/80ff0951e619289e99c79.jpg)
+![TIPTHON](https://te.legra.ph/file/c017e813be9e4199d7c7a.jpg)
